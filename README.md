@@ -110,7 +110,7 @@ Atuação em:
 
 ## 📫 Contato
 
-- **Email:** rodrigo_bahia3@hotmail.com  
+- **Email:** rodrigo@myrotech.com
 - **LinkedIn:** https://linkedin.com/in/rohbahia  
 - **Website:** https://www.myrotech.com
 
